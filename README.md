@@ -1,3 +1,3 @@
 # pessoa-especial
-para alguem que gosto bastanteeeeeeeee
+para alguem que eu amo muitoo ᓚ₍⑅^..^₎♡
 Nome: Rosilayne Ferreira Freitas
